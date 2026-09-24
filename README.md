@@ -5,8 +5,8 @@
 - 📫 How to reach me 113B11031@mailst.cjcu.edu.tw
 - 😄 Pronouns: 
 - ⚡ Fun fact:I'll be graduating in a year.
--❄️Served as a calculus teaching assistant during both semesters of my sophomore year.
--😁Served as a volunteer at the 2025 National Intercollegiate Athletic Games.
+- ❄️Served as a calculus teaching assistant during both semesters of my sophomore year.
+- 😁Served as a volunteer at the 2025 National Intercollegiate Athletic Games.
 - Certifications: ESG, Yaris ISO 14067
 - Helped with department student association activities during my sophomore and junior years.
 - 
